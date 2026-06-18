@@ -17,8 +17,6 @@ Participatory and qualitative research methods
 Policy analysis related to environmental governance and sustainability
 I am particularly interested in interdisciplinary collaborations connecting governance, ecology, social science, and policy practice. But lately I found myself interested in knowing more about the intersection of children, education and sustainability
 
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
+
 - ⚡ Fun fact: I am also a mom - that is fun and special
 -->
