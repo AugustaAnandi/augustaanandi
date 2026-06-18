@@ -1,9 +1,5 @@
 ## Hi there 👋
 
-<!--
-**AugustaAnandi/augustaanandi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on finishing my Ph.D dissertation. My doctoral research examines landscape governance in Kapuas Hulu, West Kalimantan, Indonesia.
 The study investigates how overlapping legal systems and multiple governance centres influence collaboration among customary communities, government institutions, conservation organisations, and private actors.
