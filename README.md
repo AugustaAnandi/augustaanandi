@@ -17,3 +17,4 @@ Using qualitative research methods, the research analyses how legal pluralism an
 
 - ⚡ Fun fact: I am also a mom - that is fun and special
 -->
+📚 Check my writing and research: https://www.uva.nl/en/profile/a/n/c.a.m.anandi/c.a.m.anandi.html#Ancillary-activities
