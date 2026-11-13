@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-🔭 I’m currently working on finishing my Ph.D dissertation. My doctoral research examines landscape governance in Kapuas Hulu, West Kalimantan, Indonesia.
+🔭 Hi there My doctoral research examines landscape governance in Kapuas Hulu, West Kalimantan, Indonesia.
 The study investigates how overlapping legal systems and multiple governance centres influence collaboration among customary communities, government institutions, conservation organisations, and private actors.
 Using qualitative research methods, the research analyses how legal pluralism and polycentric governance shape opportunities and challenges for integrated landscape approaches
 
